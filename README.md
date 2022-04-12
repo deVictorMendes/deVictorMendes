@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @deVictorMendes
+- 👀 I’m interested in learn about new tech things
